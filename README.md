@@ -1,0 +1,2 @@
+# premium-enamel-miniature-001-enamel-miniature-painting-po
+Struggling to capture the exquisite detail of a loved one's face in the tiny, luminous world of enamel? Our workshop transforms that daunting miniature canvas into your most expressive portrait medium.  This workshop solves the biggest challenge of enamel miniature art: achieving lifelike portraits at a minuscule scale. You'll learn professional te
